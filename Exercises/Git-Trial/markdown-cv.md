@@ -20,6 +20,15 @@
 
 ## Contact
 
+### Phone: 76024640
+### Email: karimh438@gmail.com
+
+
+## Previous Work
+
+### NabilNet, English Tutor, Virgin Megastore.
+
+
 
 
 
